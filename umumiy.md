@@ -1,2 +1,2 @@
 bu barcha uchun umumiy fayl.
-Salom Dinora
+Salom Dinora from Maryam
